@@ -1,0 +1,1 @@
+https://jandj101.github.io/redirect
